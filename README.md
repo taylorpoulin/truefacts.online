@@ -1,3 +1,1 @@
-### 9/10 exercisers agree that if you're not projectile vomiting, you're not excersising hard enough
-
-
+I sometimes like to state "facts" that are completely untrue. Now I can say I looked it up online.
