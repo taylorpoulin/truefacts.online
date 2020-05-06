@@ -5,28 +5,4 @@
 
 ### There is a direct correlation between the number of children you have, and the likelyhood that you will live longer than you would like to.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+### The prime age for sstarting your own consulting business is 37.
