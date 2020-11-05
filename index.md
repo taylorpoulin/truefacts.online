@@ -8,3 +8,5 @@
 ### The prime age for starting your own consulting business is 37.
 
 ### People who have recently had their pancreas removed blink 4% faster than those who have not
+
+### The fullness of a mans beard is inversely proportional to his ability to peel potatoes.
