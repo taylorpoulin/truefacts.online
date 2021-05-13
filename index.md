@@ -10,3 +10,5 @@
 ### People who have recently had their pancreas removed blink 4% faster than those who have not
 
 ### The fullness of a man's beard is inversely proportional to his ability to peel potatoes.
+
+### You can throw a parrot like a bommerang
